@@ -2,5 +2,5 @@
 - 👀 I’m interested in blockchain
 - 🌱 java developer
 -
-- 📫 How to reach me @mahboy47 on Telegram
+- 📫 How to reach: me @mahboy47 on Telegram
 
